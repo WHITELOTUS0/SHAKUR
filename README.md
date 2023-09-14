@@ -1,0 +1,2 @@
+# SHAKUR
+Friend's assignments
